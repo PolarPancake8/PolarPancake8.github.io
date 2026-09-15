@@ -1,6 +1,6 @@
 ---
-title= "Harem"
-date= "2026-09-13"
+title: "Harem"
+date: "2026-09-13"
 ---
 
 # Girls I goon to
