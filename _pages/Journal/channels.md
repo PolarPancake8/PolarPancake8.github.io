@@ -3,7 +3,7 @@ title: "Channels"
 date: "2026-09-28"
 ---
 
-# Channels that I keep coming back
+# Channels that I keep coming back to
 ---
 
 ### HotGuysFuck
