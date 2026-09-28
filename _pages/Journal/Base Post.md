@@ -13,4 +13,4 @@ I found this bitch on instagram. Then looked up online, and found more of her po
 She was also an instagram babe. She's Aussie. Her boobs are one of the most beautiful in the whole industry.
 
 ### Angie Faith
-When she debuted through netvideogirls, I knew right after her first scene that she's gonna be a hit. Her chubby busty vibes was so satisfying. She lost weight and became thin now, but her OG days were awesome. I keep coming back to her Nfbusty scene with Ryan Mclane.
+When she debuted through netvideogirls, I knew right after her first scene that she's gonna be a hit. Her plump voluptuous vibes was so satisfying. She lost weight and became thin now, but her OG days were awesome. I keep coming back to her Nfbusty scene with Ryan Mclane.
